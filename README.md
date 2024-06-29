@@ -1,4 +1,4 @@
-Привет 👋 Меня зовут Д. ======================<a href="https://www.github.com/дилик55" target="_blank" rel="noreferrer"><img src="https://img.shields.io/github/followers/дилик55?logo=github&style=for-the-badge&color=0891b2&labelColor=1c1917" /></a>### Навыки 
+Привет 👋 Меня зовут Д. ======================<a href="https://www.github.com/дилик55" target="_blank" rel="noreferrer"><img src="https://img.shields.io/github/followers/дилик55?logo=github&style=for-the-badge&color=0891b2&labelColor=1c1917" /></a>### Навыки  сосать глубоко!
 <p align="left">
  <a href="https://code.visualstudio.com/" target="_blank" rel="noreferrer"><img src="https://raw.githubusercontent.com/ danielcranney/readme-generator/main/public/icons/skills/visualstudiocode.svg" width="36" height="36" alt="VS Code" /></a> 
                     </p>
